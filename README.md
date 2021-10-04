@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yul Lha.
-- 👀 I’m interested in astronomy, physics and Electronic.
+- 👀 I’m interested in astronomy, physics and electronic.
 - 🌱 I’m currently learning about astronomy.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
